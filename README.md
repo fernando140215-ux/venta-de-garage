@@ -1,0 +1,1 @@
+Venta de garage, ha sido creado con la finalidad de utilizar o reutilizar articulos de un Hogar, segun sean nuevos o de uso respectivamente, y dar oportunidades de tener objetos que probablemente no se adquieran en otras circunstancias
